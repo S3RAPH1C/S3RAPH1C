@@ -1,4 +1,4 @@
-## Hi there 👋
+## yo mama
 
 <!--
 **S3RAPH1C/S3RAPH1C** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
